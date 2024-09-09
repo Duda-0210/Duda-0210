@@ -9,3 +9,9 @@ Meu nome é Duda
 ### Você entrar em contato comigo
 
 maria.bauer@escola.pr.gov.br
+
+
+
+
+
+![](https://media.tenor.com/XKCJh1a7wWUAAAAM/dont-ask-me-i-dont-know.gif)
